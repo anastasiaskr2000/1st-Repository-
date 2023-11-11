@@ -4,7 +4,7 @@ This thought experiment will explore **gentrification**, a social phenomenon whe
 
 ## Instructions
 
-In your groups, discuss the following questions:
+Discuss the following questions:
 
 * What signs might indicate that gentrification is happening?
 
